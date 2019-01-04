@@ -1,1 +1,7 @@
-# Konosubakonoakua's blog
+## Konosubakonoakua's blog
+🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣 
